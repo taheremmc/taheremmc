@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @taheremmc
+- 🥰 I'm a Student of Diploma In Civil Engineering
 - 👀 I’m interested in Watching Movie
 - 🌱 I’m currently learning Digital Marketing
 - 💞️ I’m looking to collaborate on 
